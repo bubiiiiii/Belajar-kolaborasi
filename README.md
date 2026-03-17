@@ -6,3 +6,5 @@ aku suka kucing
 pungtung is the named
 
 but he is cute too
+
+mukanya tapi kayak chaki
